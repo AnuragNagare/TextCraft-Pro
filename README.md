@@ -267,7 +267,13 @@ A: Yes! Upload examples of your writing style, and the AI will learn to match yo
 
 ---
 
-Ready to revolutionize your content creation? Let's get started! 🚀
+
+
+
+https://github.com/user-attachments/assets/b289ef80-2e0e-4956-857c-b3211700e00f
+
+
+
 
 
 Made with ❤️ and advanced AI technology
